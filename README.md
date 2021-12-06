@@ -4,7 +4,7 @@
 <br>
 
 - 👋 Hi, I’m @Nexa67
-- 👀 I’m interested in everything, and cats and foods and stuff
+- 👀 I’m interested in everything, and cats and foods
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on everything related to cat or food
 
